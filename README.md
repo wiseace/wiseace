@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wiseace
 - 👀 I’m interested in ... mobile apps and desktop apps development.
-- 🌱 I’m currently learning ...
+- 🌱 Always learning to get better everyday.
 - 💞️ I’m looking to collaborate on ... developments
 - 📫 How to reach me ...through my direct phone number +2349060239009
 
