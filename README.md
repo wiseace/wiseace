@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wiseace
+- 👋 Hi, I’m Michael Olaleye
 - 👀 I’m interested in ... mobile apps and desktop apps development.
 - 🌱 Always learning to get better everyday.
 - 💞️ I’m looking to collaborate on ... developments
